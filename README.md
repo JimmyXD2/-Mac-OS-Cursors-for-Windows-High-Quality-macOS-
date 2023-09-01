@@ -1,4 +1,4 @@
-# -Mac-OS-Cursors-for-Windows-High-Quality-macOS-
+# -MacOS-Cursors-for-Windows-High-Quality-macOS-
 
 
 ![MacOs quality cursors](https://github.com/JimmyXD2/-Mac-OS-Cursors-for-Windows-High-Quality-macOS-/assets/98918475/358a1dd0-348d-4740-b78e-dc468c278854)
